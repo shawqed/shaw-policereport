@@ -5,6 +5,6 @@ Preview : https://youtu.be/eIzZkJC3COs
 
 Discord servers : https://discord.gg/TGjGUchWsk
 
-My discord : bynomed#6401
+My discord : shaw#0351
 
-Credit : shaw#0351
+Credit :  bynomed#6401
